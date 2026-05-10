@@ -1,4 +1,4 @@
-
+Enhance Adobe Photoshop for macOS with Adobe Photoshop for macOS new Extension - typography tools and UI themes, the #1 extension. Includes typography tools and UI themes for a
 
 
 
